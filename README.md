@@ -7,7 +7,7 @@
 
 - 📝 I regularly write articles on [https://medium.com/@saurabhparyani.](https://medium.com/@saurabhparyani.)
 
-- 📫 How to reach me **saurabhparyani64@gmail.com**
+- 📫 Reach me at **saurabhparyani64@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/16CQiKftJxsutv0vDk-e9sd7AHAOOoRPX/view?usp=drive_link](https://drive.google.com/file/d/16CQiKftJxsutv0vDk-e9sd7AHAOOoRPX/view?usp=drive_link)
 
